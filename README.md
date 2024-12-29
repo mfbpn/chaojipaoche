@@ -1,6 +1,6 @@
 # 超级跑车官网地址
 
-最新地址：[cjpaoche.top](https://c1.cjpaoche.top/#/register?code=YG07LA64)
+最新地址：[cjpaoche.top](https://cjpaoche.top?path=register&code=cBUEnhA9)
 
 ## 超级跑车介绍
 
